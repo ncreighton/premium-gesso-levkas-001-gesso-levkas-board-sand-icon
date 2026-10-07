@@ -1,0 +1,2 @@
+# premium-gesso-levkas-001-gesso-levkas-board-sand-icon
+Juggling gesso recipes, levkas board specs, and sand texture notes across scattered documents? The Gesso Levkas &amp; Board Sand Icon Craft Hub consolidates your entire icon-painting process into one organized, searchable Notion workspace.  Stop losing material formulas and substrate preferences between projects. This template gives you a centralized,
